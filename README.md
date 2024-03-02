@@ -4,6 +4,7 @@ PhD Student
 ---------------------------------------
 ---------------------------------------
 🎓 Masters in Science, Geophysics (Meteorology) @ BHU, India 2018 
+
 🎓 Doctorate in Science, Environment Engineering @ CUMT, China Sept, 2021 (ongoing)  
 
 🌍  I'm based in China 
