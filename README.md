@@ -5,9 +5,14 @@ PhD Student
 ---------------------------------------
 🎓 Masters in Science, Geophysics (Meteorology) @ BHU, India 2018 
 🎓 Doctorate in Science, Environment Engineering @ CUMT, China Sept, 2021 (ongoing)  
+
 🌍  I'm based in China 
+
 ✉️  You can contact me at [tiwarip@cumt.edu.cn](mailto:tiwarip@cumt.edu.cn) 
-🤝  I'm open to collaborating on research on atmospheric aerosol, air quality, radiative forcing, Black Carbon * ⚡  Remote Sensing for Healthier Lives
+
+🤝  I'm open to collaborating on research on atmospheric aerosol, air quality, radiative forcing, Black Carbon 
+
+ ⚡  Remote Sensing for Healthier Lives
 
 ### Skills  
 
