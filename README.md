@@ -5,9 +5,9 @@ PhD Student
 ---------------------------------------
 🎓 Masters in Science, Geophysics (Meteorology) @ BHU, India 2018 
 
-🎓 Doctorate in Engineering, (Environment Engineering) @ CUMT, China Sept, 2025   
+🎓 Doctorate in Engineering, (Environment Engineering) @ CUMT, China, 2025   
 
-🌍  I'm based in China 
+🌍  Currently, I'm based in China 
 
 ✉️  You can contact me at [tiwarip@cumt.edu.cn](mailto:tiwarip@cumt.edu.cn) 
 
