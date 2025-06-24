@@ -1,6 +1,4 @@
 Hi 👋 My name is Pravash Tiwari  
-PhD Student 
-
 ---------------------------------------
 ---------------------------------------
 🎓 Masters in Science, Geophysics (Meteorology) @ BHU, India 2018 
